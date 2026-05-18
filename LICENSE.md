@@ -1,4 +1,4 @@
-# 
+# best bot de ataque sandwich scripts es el mejor bot de ataque sandwich scripts con detección de honeypots y subastas de gas prioritario. Seguro, confiable y optimizado para
 
 
 
